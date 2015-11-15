@@ -1,0 +1,8 @@
+- https://medium.com/@grungerabbit/dit-le-renard-said-the-fox-h%C3%BA-li-shu%C5%8D-%E7%8B%90%E7%8B%B8%E8%AA%AA-1ab662ee3a5b
+- https://en.wikipedia.org/wiki/Blue_Sky_with_a_White_Sun
+- https://en.wikipedia.org/wiki/List_of_Taiwanese_flags
+- http://www.vogue.com/slideshow/13255043/2015-met-costume-exhibit-china-through-the-looking-glass-dresses
+- https://en.wikipedia.org/wiki/Chinoiserie
+- https://en.wikipedia.org/wiki/Exoticism
+- https://fr.wikipedia.org/wiki/Ta%C3%AFwan
+- https://fr.wikipedia.org/wiki/Miracle_ta%C3%AFwanais
